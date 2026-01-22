@@ -1,5 +1,5 @@
 ### Ayo what's up?
-My name is Rox, a noob coder from Indonesia. ~~Also known as an ordinary [NPC](https://later.com/social-media-glossary/npc/#:~:text=%22NPC%22%20stands%20for%20%22Non,thought%20or%20blindly%20following%20trends.)~~
+My name is Daniel, a noob coder from Indonesia. ~~Also known as an ordinary [NPC](https://later.com/social-media-glossary/npc/#:~:text=%22NPC%22%20stands%20for%20%22Non,thought%20or%20blindly%20following%20trends.)~~
 
 
 ### What do I do? Well...
@@ -10,9 +10,9 @@ My name is Rox, a noob coder from Indonesia. ~~Also known as an ordinary [NPC](h
 
 
 ## Contact me on:
-Discord: RoxNotFound#3404
+Discord: crpus_
 
-[Instagram](https://www.instagram.com/hroski_/)
+[Instagram](https://www.instagram.com/crpus_/)
 
 [Twitter](https://twitter.com/RoxWithFX)
 
